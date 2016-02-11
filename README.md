@@ -1,4 +1,4 @@
 # deneme_rep
 Deneme giti
 
-trolololololololol
+bide buna bakak
